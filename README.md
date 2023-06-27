@@ -28,5 +28,7 @@ The things what i like to do in my spare time
 
 👯‍♀️ I'm looking to collaborate with other people
 
+📫 You can reach me at **jp.soekhoe@outlook.com**
+
 ⚡️ Fun fact i do collaborate also in music with other artist
 
